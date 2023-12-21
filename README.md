@@ -1,0 +1,1 @@
+This is my personal webiste where i will be advertising myself through different pages on my website. Ultimately, trying to sell myself and abilities for a potential job.
